@@ -1,4 +1,12 @@
-## Hi there 👋
+* wip pt github.
+
+<details align="middle"><summary>﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌</summary>
+  <p>no srsly its still wip</p>
+  </details></p>
+
+
+
+
 
 <!--
 **the-minesweeper/the-minesweeper** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
