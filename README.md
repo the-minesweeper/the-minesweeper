@@ -1,5 +1,7 @@
 * wip pt github.
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Micro+5&size=25&letterSpacing=10%25&duration=3000&pause=3000&color=F7F7F7&background=000000&center=true&vCenter=true&multiline=true&width=700&height=118&lines=i+miss+my+home+a+lot+%E2%96%88%E2%96%88%E2%96%88%E2%96%88%E2%96%88%E2%96%88.+my+family+too.;all+this+sea+makes+me+sick.;but+i+must+keep+sweeping+these+seamines.)](https://git.io/typing-svg)
+
 <details align="middle"><summary>﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌</summary>
   <p>no srsly its still wip</p>
   </details></p>
