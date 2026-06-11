@@ -6,11 +6,13 @@
 
 <img src="number1.png"> feel free to c+h when i'm captain sweeper ^_^ <br>
 <img src="number2.png"> i'm socially akward, or probably the other way around so, do tell me if i'm being too much ! <br>
-<img src="number3.png"> captain sweeper is my half-fictionkin, my behaviour is much different to him when i'm not srs. <br>
+<img src="number3.png"> $\Large{\textsf{captain sweeper is my half-fictionkin}}$, my behaviour is much different to him when i'm not srs. <br>
 <img src="number4.png"> sometimes sitting/hour-farming around docks, i will join hostings if they seem interesting <br>
 <img src="number5.png"> https://melvin.atabook.org/ \<\- here if u wanted to go to my atabook faster <br>
 <img src="number6.png"> i cannot draw captain consistently ong <br>
-<img src="number7.png"> <img src="sweeper.png">
+<img src="number7.png"> <img src="sweeper.png"> <br>
+<img src="number8.png"> i don't mind yumes! or doubles, or smth idk, (im not a yume myself but yall r ok) just dont be weird or be like "sweeper is all mine!" or "i love ur sweeper let's (something sexual here)" or oh! "you will never be sweeper!" like whatever bro lalala can't hear u <br>
+<img src="number9.png"> first we mine, then we sweep, LETS MINESWEEP
 
 
 
