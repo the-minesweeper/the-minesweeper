@@ -14,7 +14,7 @@
 <img src="number8.png"> <img src="sweeper.png"> <br>
 <img src="number9.png"> i don't mind yumes! or doubles, or smth idk, (im not a yume myself but yall r ok) just dont be weird or be like "sweeper is all mine!" or "i love ur sweeper let's (something sexual here)" or oh! "you will never be sweeper!" like whatever bro lalala can't hear u <br>
 <img src="number10.png"> first we mine, then we sweep, LETS MINESWEEP
-
+<img src="number11.png"> i am not minesweeper slop or a fakie who can't play the game. i played minesweeper before realizing what minesweeper even was.(google minesweeper) i flipping love to challenge myself just to suffer. something serious here bcuz i cant keep a straight face writing this.
 
 
 
