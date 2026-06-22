@@ -18,6 +18,8 @@ if skin isn't captain sweeper = cosplay (do ask if i'm comfortable for c+h ok?)
 <img src="number11.png"> i am not minesweeper slop or a fakie who can't play the game. i played minesweeper before realizing what minesweeper even was.(google minesweeper) i flipping love to challenge myself just to suffer. something serious here bcuz i cant keep a straight face writing this.
 
 
+ok while ur reading this, **here's a cross/crack ship i made of sweeper and verity ok?** https://minehelper.straw.page/ i wanna share this bcuz i wanna show people abt it duh, also bcuz it was such a genius idea of me to put 2 yellow people together 🤣🤣🤣🤣
+
 
 <!--
 **the-minesweeper/the-minesweeper** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
