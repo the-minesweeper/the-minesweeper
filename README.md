@@ -7,7 +7,7 @@ if skin isn't captain sweeper = cosplay (do ask if i'm comfortable for c+h ok?)
 
 <img src="number1.png"> feel free to c+h when i'm captain sweeper ^_^ <br>
 <img src="number2.png"> i'm socially akward, or probably the other way around so, do tell me if i'm being too much ! <br>
-<img src="number3.png"> **captain sweeper is my half-fictionkin**, my behaviour is much different to him when i'm not srs. <br>
+<img src="number3.png"> nvm but i guess in a way i see sweeps as a comf character, father figure perhaps <br>
 <img src="number4.png"> sometimes sitting/hour-farming around docks, i will join hostings if they seem interesting <br>
 <img src="number5.png"> ^ if i'm not around here then i'm w/ close friends probably <br>
 <img src="number6.png"> https://melvin.atabook.org/ \<\- here if u wanted to go to my atabook faster <br>
