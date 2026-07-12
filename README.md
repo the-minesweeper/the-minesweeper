@@ -12,13 +12,20 @@ if skin isn't captain sweeper = cosplay (do ask if i'm comfortable for c+h ok?)
 <img src="number5.png"> ^ if i'm not around here then i'm w/ close friends probably <br>
 <img src="number6.png"> https://melvin.atabook.org/ \<\- here if u wanted to go to my atabook faster <br>
 <img src="number7.png"> i cannot draw captain consistently ong <br>
-<img src="number8.png"> <img src="sweeper.png"> <br>
+<img src="number8.png"> <img src="sweeper.png">thx @title-town !<br>
 <img src="number9.png"> i don't mind yumes! or doubles, or smth idk, (im not a yume myself but yall r ok) just dont be weird or be like "sweeper is all mine!" or "i love ur sweeper let's (something sexual here)" or oh! "you will never be sweeper!" like whatever bro lalala can't hear u <br>
 <img src="number10.png"> first we mine, then we sweep, LETS MINESWEEP <br>
 <img src="number11.png"> i am not minesweeper slop or a fakie who can't play the game. i played minesweeper before realizing what minesweeper even was.(google minesweeper) i flipping love to challenge myself just to suffer. something serious here bcuz i cant keep a straight face writing this.
 
 
-ok while ur reading this, **here's a cross/crack ship i made of sweeper and verity ok?** https://minehelper.straw.page/ i wanna share this bcuz i wanna show people abt it duh, also bcuz it was such a genius idea of me to put 2 yellow people together 🤣🤣🤣🤣
+<details><summary>other stuff to read abt man idk</summary>
+  <p>i'mmm pretty hard to befriend ngl, like, we'll have to be doing something first, you do something cool/fun and maybe i join in and try to start a convo, idk would go smth like that. not guaranteed honestly since i have really. bad. intrusive thoughts. yyyeah allat stuff i guess.</p>
+  <p>sometimes offtab, even during events/hostings lol</p>
+  <p>please do remember i'm still human, u too reader, so please don't cause trouble that would ruin the other.</p>
+  <p>ok while ur reading this, **here's a cross/crack ship i made of sweeper and verity ok?** https://minehelper.straw.page/ i wanna share this bcuz i wanna show people abt it duh, also bcuz it was such a genius idea of me to put 2 yellow people together 🤣🤣🤣🤣</p>
+</details>
+
+
 
 
 <!--
