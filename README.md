@@ -22,7 +22,7 @@ if skin isn't captain sweeper = cosplay (do ask if i'm comfortable for c+h ok?)
   <p>i'mmm pretty hard to befriend ngl, like, we'll have to be doing something first, you do something cool/fun and maybe i join in and try to start a convo, idk would go smth like that. not guaranteed honestly since i have really. bad. intrusive thoughts. yyyeah allat stuff i guess.</p>
   <p>sometimes offtab, even during events/hostings lol</p>
   <p>please do remember i'm still human, u too reader, so please don't cause trouble that would ruin the other.</p>
-  <p>ok while ur reading this, **here's a cross/crack ship i made of sweeper and verity ok?** https://minehelper.straw.page/ i wanna share this bcuz i wanna show people abt it duh, also bcuz it was such a genius idea of me to put 2 yellow people together 🤣🤣🤣🤣</p>
+  <p>ok while ur reading this, here's a cross/crack ship i made of sweeper and verity ok? https://minehelper.straw.page/ i wanna share this bcuz i wanna show people abt it duh, also bcuz it was such a genius idea of me to put 2 yellow people together 🤣🤣🤣🤣</p>
 </details>
 
 
