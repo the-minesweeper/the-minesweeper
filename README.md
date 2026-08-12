@@ -1,4 +1,4 @@
-if skin isn't captain sweeper = cosplay (do ask if i'm comfortable for c+h ok?)
+if skin isn't captain sweeper = cosplay (do ask if i'm comfortable for c+h ok?)<br>
 also i made a tinted vers of sweeper so i might be either super saturated or muted as heellll
 <p align="middle">
   <img src="minesweepergit1.png"alt="wonder if there will be a 27 bomb -melvin"width="60%">
