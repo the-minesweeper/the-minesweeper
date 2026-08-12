@@ -1,4 +1,5 @@
 if skin isn't captain sweeper = cosplay (do ask if i'm comfortable for c+h ok?)
+also i made a tinted vers of sweeper so i might be either super saturated or muted as heellll
 <p align="middle">
   <img src="minesweepergit1.png"alt="wonder if there will be a 27 bomb -melvin"width="60%">
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Irish+Grover&letterSpacing=15%25&duration=3500&pause=4000&color=FDC656&center=true&width=475&lines=All+this+sea+is+making+me+sick.;But+I+have+to+clear+out+these+seamines." alt="Typing SVG" /></a>
