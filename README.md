@@ -13,7 +13,7 @@ also i made a tinted vers of sweeper so i might be either super saturated or mut
 <img src="number5.png"> ^ if i'm not around here then i'm w/ close friends or regiscouts probably <br>
 <img src="number6.png"> https://melvin.atabook.org/ \<\- here if u wanted to go to my atabook faster <br>
 <img src="number7.png"> i cannot draw captain consistently ong <br>
-<img src="number8.png"> <img src="sweeper.png">thx [@title-town](https://github.com/title-town) !<br>
+<img src="number8.png"> <img src="sweeper.png">thx [@title-town](https://github.com/title-town) & [@pt-hall-of-media](https://github.com/pt-hall-of-media) !<br>
 <img src="number9.png"> i don't mind yumes! or doubles, or smth idk, (im not a yume myself but yall r ok) just dont be weird or be like "sweeper is all mine!" or "i love ur sweeper let's (something sexual here)" or oh! "you will never be sweeper!" like whatever bro lalala can't hear u <br>
 <img src="number10.png"> first we mine, then we sweep, LETS MINESWEEP <br>
 <img src="number11.png"> i am not minesweeper slop or a fakie who can't play the game. i played minesweeper before realizing what minesweeper even was.(google minesweeper) i flipping love to challenge myself just to suffer. insert something serious here bcuz i cant keep a straight face writing this
